@@ -1,0 +1,1 @@
+# angadi_store
